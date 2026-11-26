@@ -1,1 +1,0 @@
-# Parmeshwari-weds-kishangopal-
